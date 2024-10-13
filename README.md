@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Imane, @IJaaouine
+- 📫 Linkedin.com/in/Imane-Jaaouine
